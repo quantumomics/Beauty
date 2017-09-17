@@ -15,6 +15,10 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 5. Beauty exposed to expression, becomes beautiful.
 
+6. Beauty is like a magnet, which can attract expressions of yourself.
+
+7. Beauty is an expressions of magnetism for beauty of others.
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
