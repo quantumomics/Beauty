@@ -7,7 +7,13 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 1. Beauty is a jewellery itself.
 
-2. Beauty is an imposed feature of any object and it is exposed becomes a jewellery.
+2. Beauty is an imposed feature of any object and when it is exposed becomes a jewellery.
+
+3. Beauty is an emotional guidance driven by mental health.
+
+4. Beauty is a factory of genuine and honest expressions.
+
+5. Beauty exposed to expression, becomes beautiful.
 
 ¶ 😘 Proof(s):
 
