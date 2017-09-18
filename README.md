@@ -35,6 +35,8 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 15. Beauty is a great exposure of a mind, and experienced through upgradation.
 
+16. Beauty is a connection of crime, but not a crime. - FBI.
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
