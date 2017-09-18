@@ -3,6 +3,16 @@ Beauty is a combination of qualities, such as shape, colour, or form, that pleas
 
 Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
+¶ Theorem:
+
+1. In nature, there is only one possibility and that is <b>Beauty</b>.
+
+2. Each and every creations of mother nature have Beauty.
+
+3. Beauty is associated with the creations.
+
+4. Each and every creations have an art and driving force behind that is thought.
+
 ¶ Proof(s):
 
 1. Beauty is a jewellery itself.
