@@ -47,6 +47,8 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 21. Beauty is a gene, who regulates the family of genes. — Prabhat Kumar.
 
+22. Beauty is a stereochemistry, related to undefective nature of elements. — Prabhat Kumar.
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
