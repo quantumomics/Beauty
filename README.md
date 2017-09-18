@@ -23,6 +23,8 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 9. Beauty is an inverse of ugly, a truth originates from every expressions.
 
+10. Beauty is a physical variable that depends upon execution of the same, with the respect to time.
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
