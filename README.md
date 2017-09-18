@@ -41,7 +41,11 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 18. Beauty is a mistake of our mind. AUS Police.
 
-19. Beauty is misleaded by any one, may be you. IG
+19. Beauty is misleaded by any one, may be you. IG.
+
+20. Beauty is a genome drama. — Sanger Institute.
+
+21. Beauty is a gene, who regulates the family of genes. — Prabhat Kumar.
 
 ¶ 😘 Proof(s):
 
