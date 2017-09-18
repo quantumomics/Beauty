@@ -27,6 +27,8 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 11. Beauty is limited to an experiment.
 
+12. Beauty is correlation with you and me, please carry on.
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
