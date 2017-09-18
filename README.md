@@ -21,6 +21,7 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 8. Beauty is a personality related expression to govern intelligence and gravity.
 
+9. Beauty is an inverse of ugly, a truth originates from every expressions.
 
 ¶ 😘 Proof(s):
 
