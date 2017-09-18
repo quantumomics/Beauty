@@ -29,6 +29,12 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 12. Beauty is correlation with you and me, please carry on.
 
+13. Beauty is a natural phenomenon, related to consequences of the healthy diet.
+
+14. Beauty is a great weekness of a beautiful women.
+
+15. Beauty is a great exposure of a mind, and experienced through upgradation.
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
