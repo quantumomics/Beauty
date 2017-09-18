@@ -37,6 +37,12 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 16. Beauty is a connection of crime, but not a crime. - FBI.
 
+17. Beauty is a...., after that we will see. MI6.
+
+18. Beauty is a mistake of our mind. AUS Police.
+
+19. Beauty is misleaded by any one, may be you. IG
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
