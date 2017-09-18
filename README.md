@@ -25,6 +25,8 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 10. Beauty is a physical variable that depends upon execution of the same, with the respect to time.
 
+11. Beauty is limited to an experiment.
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
