@@ -19,6 +19,9 @@ Kumar Beauty Theorem, Corollary, Lemma and Proof.
 
 7. Beauty is an expressions of magnetism for beauty of others.
 
+8. Beauty is a personality related expression to govern intelligence and gravity.
+
+
 ¶ 😘 Proof(s):
 
 1. If I am beautifool, i have to concern myself to not lose the earnings of the respect.
