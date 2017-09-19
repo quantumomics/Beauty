@@ -4,4 +4,6 @@ A beau•ty is a noun, accordingly in English Grammar. The meaning of the beauty
 
 So, pay thanks. The reason for me. Oh oh!, I have written the concept and idea to give you're confusion, that's it. So, now again a question arises about how to pay me. Ah ah!, I have never been given bank account details, so be again confused. So, please let you correct, mail or dial a phone number. But, sorry oh beloved I can't believe on you. Because, till this time you're not confused. So, why you're struggling? Say, and please pay attention.
 
-Okay, so for what I have to pay the attention? Definitely Dear, you know it — "The Beauty". So, I think you know the beauty! But, never been thought a beauty is a subject and subjected to you.
+Okay, so for what I have to pay the attention? Definitely Dear, you know it — "The Beauty". So, I think you know the beauty! But, never been thought a beauty is a subject and subjected to you. Maybe, you are a subject or subjected to the beauty. So, finally you agreed to choose only you're interest, like that! 
+
+
