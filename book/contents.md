@@ -21,4 +21,6 @@
   
   Index
   
-  Cover Art
+  ∆ Ugly Artwork
+  
+  ∆ Cover Artwork
