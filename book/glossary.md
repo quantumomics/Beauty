@@ -12,3 +12,5 @@
 <b>Unit</b> ― <i>(noun)</i> A fundamental unit of beauty.
 
 <b>Constant</b> ― <i>(adjective)</i> A quantity occurring continuously over a period of time.
+
+<b>Beauty Quotient</b> ― <i>(coined)</i> An Beauty Quotient (BQ) is a total score derived from several standardized tests designed to assess beauty intelligence. The abbreviation "BQ" was coined by the psychologist Prabhat Kumar for his book "Discovering Beauty".
