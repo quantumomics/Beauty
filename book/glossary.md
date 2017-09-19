@@ -6,3 +6,7 @@
 <b>Lemma</b> ― <i>noun</i> a subsidiary or intermediate theorem in an argument or proof.
 
 <b>Proof</b> ― <i>noun</i> a evidence or argument establishing a fact or the truth of a statement.
+
+<b>Quotient</b> ― <i>noun</i> a degree or amount of a specified quality or characteristic.
+
+<b>Constant</b> ― <i>adjective</i> A quantity occurring continuously over a period of time.
