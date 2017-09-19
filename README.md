@@ -1,9 +1,9 @@
 # Beauty
 > Noun
 
-Beauty is a combination of qualities, such as shape, colour, or form, that pleases the aesthetic senses, especially the sight.
+<i>Beauty is a combination of qualities, such as shape, colour, or form, that pleases the aesthetic senses, especially the sight</i>.
 
-Kumar Beauty Theorem, Corollary, Lemma and Proof.
+<b>Kumar(Ψ)</b> Theorem, Corollary, Lemma and Proof.
 
 ¶ Theorem:
 
