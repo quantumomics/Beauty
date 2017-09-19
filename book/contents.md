@@ -1,5 +1,9 @@
 # Contents
-  Introduction
+
+
+<i>“Life isn't worth living, unless it is lived for someone else.”</i> ― <b>Albert Einstein</b>.
+
+  <b>Introduction</b>
   
   <b>α.</b>Philosophy</br>
   <b>β.</b>Nature</br>
