@@ -6,6 +6,6 @@
 <i>Finally</i>, be a philosopher at least.</br>
 
 ### compilation...
-Welcome to the beauty.
+Welcome to the <b>beauty</b>.
 ### results
 A beautiful.
