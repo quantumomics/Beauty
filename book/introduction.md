@@ -6,6 +6,8 @@ So, pay thanks. The reason for me. Oh oh!, I have written the concept and idea t
 
 Okay, so for what I have to pay the attention? Definitely Dear, you know it — "The Beauty". So, I think you know the beauty! But, never been thought a beauty is a subject and subjected to you. Maybe, you are a subject or subjected to the beauty. So, finally you agreed to choose only you're interest, like that! If yes, it's really not going anywhere. But, why? The one again a reason is you're not going to be confused, seriously. If I am communicating with you, you have to at least listen first. Then, you can go for you're mental judgement. Be careful, you are not really sure about the subject, it's fine for you?
 
+Erwin Schrödinger | Schrödinger
+
 <b>Kumar(Ψ)</b>
     .Theorem</br>
     .Corollary</br>
