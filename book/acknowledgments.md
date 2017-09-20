@@ -6,4 +6,6 @@ These are the intellects; Ashley Graham, Priyanka Kumar, Jonna Petterson, Site, 
 
 These are some artists who brushed on a metal and given joy for the cover.
 
+<i>Note</i>: References taken are Licensed from Creative Commons is Attribution-ShareAlike 3.0 Unported (CC BY-SA 3.0) | https://creativecommons.org/licenses/by-sa/3.0/
+
 <b>Prabhat Kumar</b>, </br> 05<sup>th</sup> September.
