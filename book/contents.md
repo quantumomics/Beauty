@@ -5,8 +5,10 @@
 
   <b>Introduction</b>
   
-     <b>α.</b>Philosophy</br>       ― 9 Theorem(s)
-     <b>β.</b>Nature</br>           ― 9 Theorem(s)
+  <b>Face</b>
+  
+     <b>α.</b>Philosophy</br>       ― 9 Theorem(s)
+     <b>β.</b>Nature</br>           ― 9 Theorem(s)
      <b>γ.</b>Creator</br>          ― 9 Theorem(s)
      <b>δ.</b>Originator</br>       ― 9 Theorem(s)
      <b>ε.</b>Navigator</br>        ― 9 Theorem(s)
@@ -20,8 +22,8 @@
   
   Glossary
   
-  Appendix
-  
+  Appendices
+  
   References
   
   Index
