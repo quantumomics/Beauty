@@ -12,4 +12,6 @@ Erwin Schrödinger | Schrödinger
     .Theorem</br>
     .Corollary</br>
     .Lemma</br>
-    .Proof
+    .Observation</br>
+    .Contradiction</br>
+    .Proof
