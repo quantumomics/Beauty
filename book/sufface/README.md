@@ -3,4 +3,4 @@ Sufface is now a verified behaviours of my own experimental editions of genes bu
 
 Yet, it is an established proof, with 9×9 = 81 Theorems.
 
-email: [discovering.beauty](discovering.beauty@outlook.com)
+email: [discovering.beauty](discovering.beauty@outlook.com)@outlook.com
