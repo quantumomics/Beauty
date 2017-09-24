@@ -4,3 +4,8 @@ Sufface is now a verified behaviours of my own experimental editions of genes bu
 Yet, it is an established proof, with 9×9 = 81 Theorems.
 
 email: [discovering.beauty](discovering.beauty@outlook.com)@outlook.com
+
+<b>Prabhat Kumar</b>,</br>
+<b><sup>4•9</sup>§<sub><sup>19°79</sup></sub></b>,</br>
+<b>№ 4°9</b>, Ignited Engine,</br>Neurone Avenue,</br>
+<b>√•</b> Circuit Nearly,</br>※ Earth.
