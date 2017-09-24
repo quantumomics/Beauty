@@ -15,3 +15,5 @@ Erwin Schrödinger | Schrödinger
     .Observation</br>
     .Contradiction</br>
     .Proof
+
+<b>プラバットクマール</b>
