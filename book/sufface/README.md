@@ -3,7 +3,9 @@ Sufface is now a verified behaviours of my own experimental editions of genes bu
 
 Yet, it is an established proof, with <b>81<sub><sup>(9 × 9)</sup></sub></b> = Beauty Theorems.
 
-<i>fool</i>mail: [discovering.beauty](discovering.beauty@outlook.com)@outlook.com‖
+<i>fool</i>mail: [discovering.beauty](discovering.beauty@outlook.com)@outlook.com</br>
+<i>fool</i>poll: https://twitter.com/BeautyScale
+
 
 <b>Prabhat Kumar</b>,</br>
 <b><sup>4•9</sup>§<sub><sup>19°79</sup></sub></b>,</br>
