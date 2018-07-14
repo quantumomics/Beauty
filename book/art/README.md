@@ -4,7 +4,11 @@
 </br>
 # Beauty<sup>®</sup> is build, Now.
 
-# Beauty<sub>Theorems<b>Theorem</b><b>α.</b>Philosophy</br><b>β.</b>Nature</br><b>γ.</b>Creator</br><b>δ.</b>Originator</br><b>ε.</b>Navigator</br><b>ζ.</b>Transporter</br><b>η.</b>Culminator</br><b>θ.</b>Professor</br><b>ι.</b>Mathematics   <sup>£</sup><sup><sup>£</sup></sup></sub>
+# Beauty<sup></sup><sup><sup></sup></sup></sub>.<sub><sup></sup><sup><sup></sup></sup>
+
+<sub><sup>∞</sup>£<sup>£</sup><sup><sup>£</sup></sup></sub>.<sub>£<sup>£</sup><sup><sup>£</sup></sup></sub>
+
+<sub>Theorems<b>Theorem</b><b>α.</b>Philosophy</br><b>β.</b>Nature</br><b>γ.</b>Creator</br><b>δ.</b>Originator</br><b>ε.</b>Navigator</br><b>ζ.</b>Transporter</br><b>η.</b>Culminator</br><b>θ.</b>Professor</br><b>ι.</b>Mathematics   <sup>£</sup><sup><sup>£</sup></sup></sub>
 
 # G<sub>£<sup>£</sup><sup><sup>£</sup></sup></sub>.<sub>£<sup>£</sup><sup><sup>£</sup></sup></sub>
 
